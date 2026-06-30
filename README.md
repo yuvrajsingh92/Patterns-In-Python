@@ -1,0 +1,1 @@
+Hello EveryOne this are the questions which i have recently learn and it has helped me to understand nested loops in deeped. i highly recommand you all to give a short on your own give yourself some challange today
